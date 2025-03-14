@@ -3,7 +3,7 @@ I'm Ammar Abdalkber,
 
 Hello to my first game
 
-Let's see how will win ? 
+Let's see who will win ? 
 
 enjoy.....
 
